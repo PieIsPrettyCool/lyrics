@@ -1,0 +1,64 @@
+This shit's fire
+♪
+Switch the gear, get on the flor
+(Let's start to open)
+Amplify your perception
+Follow your destiny
+Why did you release me?
+Before the moment
+Bringing in, suffer more
+Golden week
+♪
+Break the silence, yeah!
+Who's gon' stop, yeah, here we go
+This fucking flow is right on point
+Who's gon' stop, yeah, here we go
+Switch the gear, get on the floor
+Let's go
+Go-go-go-go-
+Check out the other side
+Don't miss out
+Yo, check out other side
+♪
+(Make him try, part two)
+(If I wouldn't be scared)
+(If I wouldn't be scared)
+This shit's fire
+(My fortune)
+This is your final
+Push it, Push it, Push it, Push it, Push it, Push it, Push it, Push it, Push it, Push it, Push it
+Break the silence
+Kill, kill, kill, kill, kill, kill, kill, kill, kill, kill, kill
+Kill
+(While we clean out here)
+Release your true power
+This is the world
+Your destiny
+In honor and pride
+Creation of sand
+Reality
+Ignite the fire!
+♪
+(No patrol)
+(Need some help)
+♪
+Cannot be damned when I am mad
+♪
+Go 'round
+Of realize just text
+This shit's fire
+♪
+Who's gon' stop, yeah, here we go
+This fucking flow is right on point
+Switch the gear, get on the floor
+Yeah!
+♪
+Go bring hell!
+♪
+Break the floor!
+♪
+Don't miss out
+Check out other side
+Dispose of them
+An unknown matter
+Finish it
